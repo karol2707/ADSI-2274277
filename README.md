@@ -13,5 +13,5 @@
 - 🌱 I’m currently studying at Sena. I really enjoy each class, I would like to learn a lot. I think that the knowledge Instructors level is too good, that's I'm very happy. 
 - 💞️ I wish to work and developed as proffessional, increasing everyday my skills.
 - ## Social media
-***[Facebook]***(https://www.facebook.com/karito.rojas.520/)
+[Facebook](https://www.facebook.com/karito.rojas.520/)
 
